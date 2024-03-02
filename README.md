@@ -1,2 +1,1 @@
-Araz Hummetov
 Aysel Memmedova
